@@ -5,3 +5,4 @@ wip
 
 <sub>[Ata](https://sydozz.atabook.org)
 
+creds to my friend for the help LMAO
